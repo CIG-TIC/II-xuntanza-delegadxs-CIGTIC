@@ -10,6 +10,8 @@ Ser delegada/o da CIG nunha empresa das TIC.
 
 ## Hora e lugar
 
+Local nacional da Confederación Intersindical Galega
+
 - Xoves 19 de setembro, 11:00 AM
 
 - Miguel F. Caaveiro, 10
