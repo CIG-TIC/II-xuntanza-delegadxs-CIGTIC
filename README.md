@@ -23,3 +23,8 @@ https://www.google.com/maps/place/Cig+Confederaci%C3%B3n+Intersindical+Galega/@4
 
 
 
+## Orde do dia
+
+- Teletraballo
+- Rexistro de xornada
+- Convenio galego
