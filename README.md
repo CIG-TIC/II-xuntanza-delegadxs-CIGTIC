@@ -5,7 +5,8 @@ II xuntanza nacional de delegados e delegadas da CIG TIC
 
 ## Requerimentos
 
-Ser delegada/o da CIG nunha empresa das TIC.
+- Ser delegada/o da CIG nunha empresa das TIC
+- Tamén podes enviar email a cig.tic@galizacig.gal para pedir asistencia sen ser delegado/a
 
 
 ## Hora e lugar
